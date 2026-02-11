@@ -35,23 +35,23 @@ Member of the @[R-ladies Querétaro](https://x.com/RLadies_Qro), @[SECyT](https:
 
 @[Imaginaries about intangible cultural heritage and Turismo in mexican bajio cities](https://doi.org/10.1108/IJTC-01-2023-0006)
 
-[Ventaja competitiva en hoteles boutique de Querétaro](https://doi.org/10.25145/j.pasos.2023.21.010)
+@[Ventaja competitiva en hoteles boutique de Querétaro](https://doi.org/10.25145/j.pasos.2023.21.010)
 
-[Navigating Uncertainty: Exploring Festival and Community Events' Crisis Management in Three North American Countries](https://doi.org/10.1080/02508281.2023.2243769)
+@[Navigating Uncertainty: Exploring Festival and Community Events' Crisis Management in Three North American Countries](https://doi.org/10.1080/02508281.2023.2243769)
 
-[Social media reactions to festival cancellation announcements](https://doi.org/10.3727/152599521X16106577965224)
+@[Social media reactions to festival cancellation announcements](https://doi.org/10.3727/152599521X16106577965224)
 
-[Eventos culturales y alojamiento de lujo. El caso de Guanajuato](https://www.redalyc.org/journal/1807/180755643003/html/) 
+@[Eventos culturales y alojamiento de lujo. El caso de Guanajuato](https://www.redalyc.org/journal/1807/180755643003/html/) 
 
-[Rentabilidad de hoteles boutique explicada desde la experiencia memorable](https://www.scielo.org.mx/scielo.php?script=sci_arttext&pid=S1870-90362017000200081)
+@[Rentabilidad de hoteles boutique explicada desde la experiencia memorable](https://www.scielo.org.mx/scielo.php?script=sci_arttext&pid=S1870-90362017000200081)
 
-[Empowering communities through ecotourism: A path to sustainable development in Chalacatepec, Jalisco, Mexico](https://www.elgaronline.com/edcollchap/book/9781035344307/chapter12.xml)
+@[Empowering communities through ecotourism: A path to sustainable development in Chalacatepec, Jalisco, Mexico](https://www.elgaronline.com/edcollchap/book/9781035344307/chapter12.xml)
 
-[Turistificación de centros históricos latinoamericanos: Santiago de Querétaro, México](https://doi.org/10.21138/al.2025.lc)
+@[Turistificación de centros históricos latinoamericanos: Santiago de Querétaro, México](https://doi.org/10.21138/al.2025.lc)
 
-[Lessons learned during times of uncertainty: Cultural festivals in Mexico](https://doi.org/10.23912/9781915097866-5968)
+@[Lessons learned during times of uncertainty: Cultural festivals in Mexico](https://doi.org/10.23912/9781915097866-5968)
 
-[Tourists Perceptions Of Cultural Experiences In Heritage Hotels In Queretaro City](https://doi.org/10.1079/tourism.2024.00)
+@[Tourists Perceptions Of Cultural Experiences In Heritage Hotels In Queretaro City](https://doi.org/10.1079/tourism.2024.00)
 
 
 

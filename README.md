@@ -19,6 +19,8 @@ Doctora en Ciencias Económicas y profesora en la UNAM. Cofundadora de RLadies Q
 Member of the @[R-ladies Querétaro](https://x.com/RLadies_Qro), @[SECyT](https://x.com/SIECyT), .
 
 #### **Publications**
+@[Liminoid behavior in temporal overtourism](https://www.emerald.com/ijefm/article-abstract/doi/10.1108/IJEFM-07-2025-0110/1346887/Liminoid-behaviour-in-temporal-overtourism?redirectedFrom=fulltext)
+
  @[Reflexiones sobre el patrimonio geológico como activo cultural y natural en los sitios geotérmicos](https://dx.doi.org/10.22201/igc.20072902e.2025.2.1861)
 
 @[Gathering in the Face of Disaster: Understanding Festivals Roles in Wildfire Emergency Management](https://doi.org/10.3727/152599525X17483017436913)
